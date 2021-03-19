@@ -1,0 +1,1 @@
+First, boil some water in a pan. When the water boils, add one raw maggi to it and with a help of spoon, make it soft. Then add a packet of maggi masala to it and stir it constantly. Then it becomes yellow. Then add some veggies it you want and stir it. Add some butter if you want. Finally add some coriander leaves on the top. You maggi is ready!
